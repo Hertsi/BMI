@@ -1,1 +1,2 @@
-# BMI![Näyttökuva 2024-09-08 011802](https://github.com/user-attachments/assets/da6eb848-0fbc-4f9e-a3c9-8f4571f52bd5)
+
+![Näyttökuva 2024-09-12 190059](https://github.com/user-attachments/assets/76cd60b3-9618-465f-9346-c0d806247079)
